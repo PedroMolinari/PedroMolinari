@@ -51,5 +51,3 @@ Me chamo Pedro Henrique Molinari Domingues, tenho 18 anos e sou natural do Paran
 
 <br/>
 <br/>
-
----
